@@ -1,1 +1,1 @@
-# Milkshake-Varietes
+# Milkshake-Ingredients
